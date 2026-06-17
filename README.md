@@ -1,1 +1,0 @@
-# BUSCADOR-SKU
